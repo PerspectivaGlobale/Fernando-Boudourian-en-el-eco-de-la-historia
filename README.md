@@ -1,1 +1,2 @@
 # Fernando-Boudourian-en-el-eco-de-la-historia
+Cuando se pierde la conexión con la Tierra, se pierde también una parte de nuestra humanidad. Fernando Boudourian plantea que los desafíos climáticos no son solo técnicos, sino éticos. Recuperar la relación sagrada con lo natural implica escuchar las voces que la historia acalló: culturas originarias, pueblos desplazados, ecosistemas devastados. El futuro nace de esa escucha profunda.
